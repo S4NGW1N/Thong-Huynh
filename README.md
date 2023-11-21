@@ -2,7 +2,7 @@
 
 **🚀 About Me:**
 
-I'm a passionate cybersecurity enthusiast, currently deep-diving into the fascinating realms of ethical hacking and artificial intelligence at LCC, where I'm an active member of both the Ethical Hacking Club and AI Club. My journey in cybersecurity is not just a professional pursuit but a personal passion that drives me.
+I'm a passionate cybersecurity enthusiast, currently deep-diving into the fascinating realms of ethical hacking and artificial intelligence at LCC, where I'm an active member of the Ethical Hacking Club and the Treasurer of the A.I. Club. My journey in cybersecurity is not just a professional pursuit but a personal passion that drives me.
 
 **💼 Professional Aspirations:**
 
